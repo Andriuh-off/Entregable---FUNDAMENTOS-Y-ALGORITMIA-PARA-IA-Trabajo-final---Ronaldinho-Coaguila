@@ -1,1 +1,0 @@
-# Entregable---FUNDAMENTOS-Y-ALGORITMIA-PARA-IA-Trabajo-final---Ronaldinho-Coaguila
